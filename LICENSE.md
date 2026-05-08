@@ -1,4 +1,4 @@
-
+Get the ultimate CapCut for macOS utility with ultimate CapCut for macOS Utility | color-correction + raw-file-support. Featuring color-correction and raw-file-support, it's the
 
 
 
